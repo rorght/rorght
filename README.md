@@ -1,4 +1,4 @@
 # rorght
 
-HI! I from Taiwan am a student
+HI! 我是台灣人我是一位學生
 我對電腦軟體有興趣請大家多多幫助我讓我能更快學會更多東西
